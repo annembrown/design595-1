@@ -101,13 +101,3 @@ Illustration Conference - Eva and Avery
 SNAP Gallery - Chane and Gina    
 Blood Drive - Abigail and Vivian  
 EIFF Festival - Leslie and Monika  
-
-| Wesbite | Designer | 
-|  -----  | ----- | 
-| [Carved](https://www.carved.com/) | TBD | 
-| [Flatline Van Co.](https://flatlinevanco.com/) | TBD | 
-| [Neurogan](https://neurogan.com/) | TBD | 
-| [Vego Garden](https://vegogarden.com/) | TBD | 
-| [Pela](https://pelacase.ca/) | TBD |  
-| [Pave](https://joinpave.com/home) | TBD | 
-| EIFF Festival | TBD | 
